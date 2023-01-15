@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on business project
+🔭 I’m currently working on business project 
 
 
 ## 🌐 Socials:
